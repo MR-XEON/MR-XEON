@@ -7,4 +7,3 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=MR-XEON&label=Profile%20views&color=eb4d3d&style=flat-square" alt="MR-XEON" /> </p>
 </i></b></h3>
-* FOR CONTACT :
